@@ -1,0 +1,2 @@
+# RageHaters
+Rage Haters hosting
